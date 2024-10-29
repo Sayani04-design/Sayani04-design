@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sayani04-design
+- 👋 Hi, I’m @Sayani06
 - 👀 I’m interested in Business Analyst
 - 🌱 I’m currently studying Master's in Business Analyst
 - 💞️ I’m looking to collaborate on ...
